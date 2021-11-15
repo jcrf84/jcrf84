@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jcrf84
+- 👀 I’m interested in some different stuff
+- 🌱 I’m currently learning annoying things about my M1 MacBook
